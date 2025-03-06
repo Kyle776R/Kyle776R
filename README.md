@@ -10,11 +10,12 @@
 
 - 😄 Pronouns: He/Him/His
 
-- ⚡ Fun Fact: I enjoy collecting assorted **keychains**; I currently have 35.
+- ⚡ Fun Fact: I enjoy collecting assorted **keychains**; I currently have 49.
 
 <h3 align="center">Favorite Quote:</h3>
 
 > _“Every single thing changes and is changing always in this world. Yet with the same light the moon goes on shining.”_
+>
 > \- Saigyō Hōshi
 
 ---
