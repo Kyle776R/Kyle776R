@@ -10,7 +10,7 @@
 
 - 😄 Pronouns: He/Him/His
 
-- ⚡ Fun Fact: I enjoy collecting assorted **keychains**; I currently have 49.
+- ⚡ Fun Fact: I enjoy collecting assorted **keychains**; I currently have 50.
 
 <h3 align="center">Favorite Quote:</h3>
 
